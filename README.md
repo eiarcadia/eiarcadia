@@ -1,9 +1,9 @@
-- eyo.
+- minor
 - system ' introj heavy
 - collective name ; solaris
-- col pronouns ; he/they
+- col pronouns ; they/he
 
-- frequent fronts: eridan, dirk, dave + others.
+- frequent fronts: cirava, edolon
 
 ----> dni
 
