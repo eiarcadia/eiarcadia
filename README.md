@@ -3,7 +3,7 @@
 - collective name ; solaris
 - col pronouns ; they/he
 
-- frequent fronts: cirava, edolon
+- frequent fronts: cirava, tagora, edolon
 
 ----> dni
 
