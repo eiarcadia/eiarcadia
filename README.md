@@ -1,3 +1,5 @@
+!! discord: solrx \ free to add for anything! say where you added us from though, and just a warning we WILL advertise our server.
+
 - minor
 - system ' introj heavy
 - collective name ; solaris
