@@ -5,7 +5,7 @@
 - collective name ; solaris
 - col pronouns ; they/he
 
-- frequent fronts: BRIAN, SKULLY, HABIT, OBSERVER
+- HOST: VESSEL
 
 ----> dni
 
