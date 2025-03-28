@@ -11,7 +11,7 @@
 
 ----> dni
 
-endosystems, shtwt, proshippers, fakeclaimers.
+endosystems, ed/shtwt, that part of ttc, proshippers, fakeclaimers.
 
 
 ![aa](https://64.media.tumblr.com/31cda49da9550cf44d4f3dabdb9e9c69/0204d4661e661699-65/s400x600/6eee9dd6e6ddd93d5986c5766b0b355354cf22e2.gif)
