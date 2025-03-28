@@ -1,3 +1,5 @@
+
+(pfp is a comission of our oc by https://x.com/kas_loz
 !! discord: solrx \ https://discord.gg/8YWzqN4xNf
 
 - 17
