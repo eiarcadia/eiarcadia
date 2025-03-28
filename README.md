@@ -1,11 +1,11 @@
-!! discord: solrx \ free to add for anything! say where you added us from though, and just a warning we WILL advertise our server.
+!! discord: solrx \ https://discord.gg/8YWzqN4xNf
 
-- minor
+- 17
 - system ' introj heavy
 - collective name ; solaris
 - col pronouns ; they/he
 
-- HOST: VESSEL
+- HOST(S): VESSEL, HERMES
 
 ----> dni
 
