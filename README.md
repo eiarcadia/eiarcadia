@@ -18,9 +18,10 @@ host ; vessel
 </p>
 
 <p align="center">
-
+not good at talking, initiate conversation!
 </p>
 
 <p align="center">
 check out strawpage for dni/int https://postmortm.straw.page
 </p>
+
