@@ -1,22 +1,26 @@
+![header](https://file.garden/Z8vzEG5AExJC2-sW/GitHub/Untitled80_20250507163158.png)
 
-(pfp is a comission of our oc by [kazlos](https://x.com/kas_loz)
-!! discord: solrx \ [discord server](https://discord.gg/8YWzqN4xNf)
-|
-https://postmortm.straw.page
-- 17
-- system ' introj heavy
-- collective name ; solaris
-- col pronouns ; they/he
+<p align="center">
+EVEN IN ARCADIA
 
-- HOST(S): VESSEL, HERMES
+</p>
 
-----> dni
+<p align="center">
+𓆩 ╴╴╴╴╴𓆪 
+</p>
 
-endosystems, ed/shtwt, that part of ttc, proshippers, fakeclaimers.
+<p align="center">
+17 ' sys ' they/he
+</p>
 
+<p align="center">
+host ; vessel
+</p>
 
-![aa](https://64.media.tumblr.com/31cda49da9550cf44d4f3dabdb9e9c69/0204d4661e661699-65/s400x600/6eee9dd6e6ddd93d5986c5766b0b355354cf22e2.gif)
-<!---
-eiarcadia/eiarcadia is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+<p align="center">
+
+</p>
+
+<p align="center">
+check out strawpage for dni/int https://postmortm.straw.page
+</p>
