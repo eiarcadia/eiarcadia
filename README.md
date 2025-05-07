@@ -18,7 +18,7 @@ host ; vessel
 </p>
 
 <p align="center">
-not good at talking, initiate conversation!
+not good at talking, initiate conversation! we have semidiagnosed-autism, adhd, and ocd.
 </p>
 
 <p align="center">
