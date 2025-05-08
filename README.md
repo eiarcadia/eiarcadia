@@ -25,4 +25,6 @@ not good at talking, initiate conversation! we have semidiagnosed-autism, adhd, 
 check out strawpage for dni/int https://postmortm.straw.page
 </p>
 
-![a](https://file.garden/Z8vzEG5AExJC2-sW/GitHub/IMG_3064.gif)
+<p align="center">
+  <img src="https://file.garden/Z8vzEG5AExJC2-sW/GitHub/iiigif.gif" alt="animated" />
+</p>
