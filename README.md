@@ -22,6 +22,10 @@ not good at talking, initiate conversation! we have semidiagnosed-autism, adhd, 
 </p>
 
 <p align="center">
+some of us make darker jokes, tell us if that makes you uncomfortable. most of us have an odd-er sense of humour.
+</p>
+
+<p align="center">
 check out strawpage for dni/int https://postmortm.straw.page
 </p>
 
