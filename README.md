@@ -26,8 +26,8 @@ some of us make darker jokes, tell us if that makes you uncomfortable. most of u
 </p>
 
 <p align="center">
-check out strawpage for dni/int [https://postmortm.straw.page](https://jeriicho.straw.page)
-JOIN OUR NEW DISCORD! [https://jeriicho.straw.page](https://jeriicho.straw.page)
+check out strawpage for dni/int https://postmortm.straw.page
+JOIN OUR NEW DISCORD! https://discord.gg/MuSBN563BE
 </p>
 
 <p align="center">
